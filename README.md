@@ -7,6 +7,8 @@
 - http://www.ui.cn/detail/101056.html
 - http://www.ui.cn/detail/197916.html
 - http://www.ui.cn/detail/226989.html
+- http://www.ui.cn/detail/59236.html
+- http://www.ui.cn/detail/61917.html
 
 
 
